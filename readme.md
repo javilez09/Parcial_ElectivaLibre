@@ -1,0 +1,3 @@
+Jamir Yessid Avilez Cienfuego
+ELECTIVA LIBRE
+PARCIAL PRIMER CORTE
